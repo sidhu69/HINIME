@@ -6,4 +6,4 @@
 <h3>☣️ ALL OP ANIMES ☣️</h3>
 
 
-<h1 align="center">⚡ †hê gItHuB RePo ⚡</h1>
+<h1 align="center">⚡ WELCOME ⚡</h1>

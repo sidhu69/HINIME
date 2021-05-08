@@ -7,7 +7,8 @@
 
 
 
-<h3>☣️ ALL OP ANIMES ☣️</h3>
+ 
+<h1 align="center">☣️ ALL OP ANIMES ☣️</h1>
 
 
 

@@ -6,12 +6,6 @@
 
 
 
-
- 
-<h1 align="center">☣️ ALL OP ANIMES ☣️</h1>
-
-
-
 <h5>This is a github repo made for Indian anime fans. All credits goes to its Respective Dubbers.</h5>
 
 

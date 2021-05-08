@@ -3,4 +3,4 @@
 
 
 
-<h3>☣️ The Official Github Repo For Indian Anime Fans ☣️</h3>
+<h3>☣️ ALL OP ANIMES ☣️</h3>

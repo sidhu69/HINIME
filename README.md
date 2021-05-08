@@ -23,4 +23,4 @@ IMPORTANT NOTE : MAI YE BTANA CHAHTA HU KI MAI APNE ISS WEBSITE YA APNE ISS GITH
 
 
 
-[![HINIME](https://telegra.ph/file/f9ab6e957203f9859e7fc.jpg)]
+[![HINIME](https://telegra.ph/file/5f67f215a37ad1e13ca18.jpg)]

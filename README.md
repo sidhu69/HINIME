@@ -22,8 +22,6 @@ Don't forget to star this repo if you liked it.
 <h1 align="center"> HINIME </h1>
 
 
-![HINIME](https://telegra.ph/file/f9ab6e957203f9859e7fc.jpg)
-
 
  #1 DEATH NOTE
 

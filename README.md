@@ -26,6 +26,8 @@ Don't forget to star this repo if you liked it.
 
 SCROLE DOWN FOR DOWNLOAD ANIME IN HINDI
 
+
+#DEATH NOTE
 ![HINIME](https://telegra.ph/file/82285c1f98dd02f4e5266.jpg)
 
  #1 DEATH NOTE

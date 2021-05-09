@@ -25,6 +25,6 @@ Don't forget to star this repo if you liked it.
 
  #1 DEATH NOTE
 
-![HINIME](https://telegra.ph/file/ae32aa78570708dff4813.jpg)
+![HINIME](https://telegra.ph/file/f99d59c0121645f3395b9.jpg)
 
 TO GUYS APKO DOWNLOAD KRNE K LIYE KARNA KUCH NHI HAI BAS DEATH NOTE K IMAGE PAR SIMPLY CLICK KRO

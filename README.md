@@ -7,15 +7,11 @@
 
 
 
-Don't forget to star this repo if you liked it.
+Don't forget to star this repo if you li)](https://github.com/sidhu70/HINIME)
 
 
 
-[![HINIME](https://telegra.ph/file/a29f4769d061f1665ed7e.jpg)](https://github.com/sidhu70/HINIME)
-
-
-
-![HINIME](https://telegra.ph/file/5f67f215a37ad1e13ca18.jpg)
+![HINIME](https://www.flickr.com/photos/199671638@N08/53359177162/in/dateposted-public/lightbox/#)
 
 
 
